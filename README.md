@@ -6,4 +6,4 @@
 💞️ I’m looking to collaborate on open-source projects.
 📫 How to reach me: kalestars@gmail.com
 😄 Pronouns: He/Him
-⚡ Fun fact: When I’m not coding, watching podcast, learning about engineering and new technologies
+⚡ Fun fact: When I’m not coding, watching podcast, learning about engineering and new technologies.
